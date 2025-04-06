@@ -1,4 +1,9 @@
-Ajde pushka pukna be dzanam
+pushka pukna be dzanam
 pushkaa puukna
-safi promeni u pichko materino
+afi promeni u pichko materino
 
+
+Koi ke gi gleda bedzanam
+miseumire
+nov dodatok
+nov
